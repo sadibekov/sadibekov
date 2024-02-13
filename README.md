@@ -1,1 +1,1 @@
-See https://batyrkhanurali.github.io
+https://batyrkhanurali.github.io
