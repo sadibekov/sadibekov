@@ -1,1 +1,1 @@
-https://batyrkhanurali.github.io
+https://sadibekovnurali.github.io
