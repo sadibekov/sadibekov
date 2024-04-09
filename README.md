@@ -1,1 +1,3 @@
-https://sadibekovnurali.github.io
+welcome to my github.
+
+https://sadibekov.github.io
